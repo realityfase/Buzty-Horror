@@ -61,3 +61,11 @@ https://discord.gg/bustyhorror
 https://roastedduckreel.itch.io/busty-horror
 
 
+![Screenshot 2024-11-02 004214](https://github.com/user-attachments/assets/e1580789-f7f6-4ee0-b65e-09b487746304)
+
+![Screenshot 2024-11-02 004224](https://github.com/user-attachments/assets/df7d065d-ab73-4e5e-b65b-a1be09d69ca4)
+
+![Screenshot 2024-11-02 004232](https://github.com/user-attachments/assets/35f510db-d4c7-44bc-ad29-d8e679032f4c)
+
+![Screenshot 2024-11-02 004248](https://github.com/user-attachments/assets/96967647-ba3f-4ffa-a113-eeee2e1c478c)
+
